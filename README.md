@@ -1,6 +1,4 @@
-              heyo
-             
-            @  ray    ⤙
-
-⠀         .⠀he ﾉ⠀them ﹗﹗  
-       dni people named RORY.
+heyo 
+       @ ray 
+      he ﾉ⠀they ﹗﹗  
+hashtag hashtag DNI RORY
