@@ -2,5 +2,5 @@
              
             @  ray    ⤙
 
-⠀        .⠀he ﾉ⠀them ﹗﹗  
-      dni people named RORY.
+⠀         .⠀he ﾉ⠀them ﹗﹗  
+       dni people named RORY.
